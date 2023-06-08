@@ -1,0 +1,1 @@
+**Note:** The highlighted text is in English language. Therefore, I have created a PDF document from which you can access the key words and links that have been highlighted for your convenience. Please note that the translated version of the text will not contain any highlighted elements.
